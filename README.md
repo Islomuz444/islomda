@@ -1,0 +1,2 @@
+# islomda
+Islomiy savol javob
